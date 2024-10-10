@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @a75merix
+- 👀 I’m interested in coding,Game Developing
+- 🌱 I’m currently learning Java,C# And Re-Learning C++
+- 📫 How to reach me: Discord: Angygamer75
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: i'm mentally sensitive and unstable so please be nice
